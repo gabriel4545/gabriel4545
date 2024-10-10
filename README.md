@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Gabriel
-- 📫 How to reach me gabrielperinoiosif@gamil.com
+- 📫 How to reach me gabrielperinoiosif@gmail.com
 
 
 
